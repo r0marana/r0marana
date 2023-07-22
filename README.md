@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @r0marana
+- 👀 I’m interested in coding for the first time properly for school
+- 🌱 I’m currently learning Python LMFAO
+- 📫 How to reach me: r0marana on Insta
+- I might bully my friend into making a github too idfk
